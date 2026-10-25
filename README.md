@@ -1,1 +1,0 @@
-# sinihiro.github.io
